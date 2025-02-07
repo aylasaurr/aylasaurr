@@ -1,6 +1,7 @@
-## Hi there 👋
+## [ѕтяαω](https://aylasaurr.straw.page) .   [ρяσησυηѕ](https://en.pronouns.page/@aylasaur) 
 
 <!--
+
 **aylasaurr/aylasaurr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
