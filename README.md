@@ -22,3 +22,5 @@
 --------
 
 idk more but yh. ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk and c+h<3 **BYEEEEEE**
+
+![Dazai](https://github.com/aylasaurr/aylasaurr/blob/main/dazai.png)
