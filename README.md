@@ -17,7 +17,7 @@
 ***Status!***
 * *away:* mostly afk or feeling comfy
 * *busy:* mostly afk again but dont want to int w someone!!
-* *looking for a chat:* looking for someone to talk to.🫡 intme
+* *looking for chat:* looking for someone to talk to.🫡 intme
 
 --------
 
