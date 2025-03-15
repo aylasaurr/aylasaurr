@@ -2,7 +2,7 @@
 
 # HI. so im gonna talk about how i act, type or idk, and about the status.
 
-*firstly, below 12 and above 18 pls dni or just dont be weird.. i dont really mind it but just keep in mind that i can suddenly get uncomfortable!!*
+*my name mostly explains how i feel at the moment.*
 
 -----------
 
