@@ -1,4 +1,4 @@
-  ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=red&label=stalkers?!)
+![Your GIF Description](https://github.com/bloodyros3s/bloodyros2s/blob/main/tumblr_3d4752d6cec4e55834951ad5fab4ef58_00f12ec6_400.webp)   ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=red&label=stalkers?!)
 
 # HI. so im gonna talk about how i act, type or idk, and about the status.
 
